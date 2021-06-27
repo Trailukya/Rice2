@@ -1,0 +1,1 @@
+take boiled water in a pressure cooker and put some rice in it ,put the pressure cooker on the stove and wait for the pressure cooker to blow two whistles,wait for the rice to cool and it is ready to be served

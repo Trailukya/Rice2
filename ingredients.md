@@ -1,0 +1,1 @@
+rice,pressurecooker,stove,water
